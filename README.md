@@ -1,4 +1,4 @@
-![Eden Eliezer](https://github.com/user-attachments/assets/752ce175-bf06-4d9b-82c8-b05b5f16dde9)
+![image](https://github.com/user-attachments/assets/662ce9ec-c1ff-4fc6-a0a0-3d43bbd4d6d4)
 
 <!--
 **edeneliezer/edeneliezer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
